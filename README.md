@@ -2,7 +2,7 @@ Hi, I’m Alejandro Tovar 👋
 
 🌱 Data Analyst in the making. I'm sharing my progress as I improve my skills
 
-📫 How to reach me  ➡︎ alejandrotovarcastillo@outlook.com
+📫 How to reach me  ➡︎ [Email](alejandrotovarcastillo@outlook.com)
 
 LinkedIn:  ➡︎ [@AlejandroTovarC](https://www.linkedin.com/in/alejandro-tovar-castillo/)
 
