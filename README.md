@@ -1,4 +1,6 @@
-Hi, I’m Alejandro Tovar 👋
+Hi, I’m Alejandro 👋
+
+👨‍🎓 Current NEU student on track for a M.S. in Data Analytics Engineering
 
 🌱 Data Analyst in the making. I'm sharing my progress as I improve my skills
 
